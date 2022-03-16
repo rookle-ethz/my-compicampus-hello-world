@@ -1,2 +1,1 @@
-# my-compicampus-hello-world
-compi-campus workshops are fun!
+# How I came to be know as Jesus...
